@@ -18,4 +18,4 @@ Regular Updates: We're committed to providing you with the most up-to-date prote
 Easy Integration: Seamlessly integrate the FTA Adblock List into your preferred adblocker or web browser for instant protection. With easy-to-follow installation instructions, you'll be up and running in no time, enjoying a safer and more enjoyable browsing experience.
 
 ---
-Take control of your online experience with the FTA Adblock List. Join thousands of satisfied users who trust our comprehensive protection to keep them safe from unwanted content and malicious entities. Download the list today and enjoy a cleaner, safer internet.
+Take control of your online experience with the FTA Adblock List. Download the list today and enjoy a cleaner, safer internet.
